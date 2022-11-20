@@ -1,3 +1,4 @@
+# Leticia Mooney
 - 👋 Hi, I’m @LeticiaMooney! Welcome, traveller.
 - 👀 **I’m an Australian author** ✒️ whose works focus on place-making, place-taking, and place-being. I'm obsessed by nature. I work in a multitude of forms from essays to poetry. 
 - 💰**I work as** a life reader (tarot, numerology) and writer therapist. I have an [Etsy store](https://etsy.com/au/shop/leticiamooney), too. 
